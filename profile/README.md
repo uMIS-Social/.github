@@ -1,1 +1,1 @@
-![uMISLogo](https://umis.juanvel400.xyz/style/uMIS.logo.png)
+![The uMIS Logo](https://new.umis.juanvel400.xyz/img/logo.png)
